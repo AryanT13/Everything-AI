@@ -1,1 +1,1 @@
-# Everything-AI
+# everything-ai
